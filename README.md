@@ -1,2 +1,2 @@
-# fuck2022
-time flies and I hope things can get changed.
+# love2022
+Time flies, and I hope to see some changes.
